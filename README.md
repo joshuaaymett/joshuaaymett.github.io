@@ -1,2 +1,0 @@
-# joshuaaymett.github.io
-Website
